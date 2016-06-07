@@ -19,3 +19,5 @@ Over the period of applying to PhDs and being in a PhD, I've read quite a few ar
 * ["Tough love: An insensitive guide to thriving in your PhD"](http://neurochambers.blogspot.co.uk/2012/05/tough-love-insensitive-guide-to.html)
 
 * ["The importance of stupidity in scientific research"](http://jcs.biologists.org/content/121/11/1771.full)
+
+Note: advice are not 'one size fits all'. don't take anyone's advice too seriously. successful people will tell you what they did, but correlation is not causation. 
