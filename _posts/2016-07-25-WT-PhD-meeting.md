@@ -3,11 +3,11 @@ layout: post
 title: Wellcome Trust First Year PhD Students' Meeting
 ---
 
-![Imgur](http://i.imgur.com/oVqZp2b.png)
-
 On Friday, the 22nd of July (exactly one year since I graduated from the University of Bristol!) I attended a first-year PhD students meeting at the Wellcome Trust. This meeting was for all 140 students funded on the Trust’s four-year phd programmes to gather together for advice, information and networking. The objective of the meeting was to highlight opportunities for us to think about, such as the Sir Henry Wellcome postdoctoral fellowships, public engagement opportunities and policy internships - and also provide a space for all the phd students to meet. I found the meeting very insightful and useful (much more than I expected!), taking away many pieces of advice and also having a good time meeting old friends and new people.
 
 The day started with a panel by early career scientists and principal investigators on “making the most of your PhD”. I was happy to see that the five-person panel consisted of four women, including two female PIs. I have recently been lamenting seeing a dearth of young female PIs, so it was great to see successful young female lead scientists up on the panel. I found it also gave a more balanced perspective than an all-male panel would. Although there was little talk of any gendered topics besides a brief discussion about timing of starting families, the panelists’ personal experiences seemed to be perhaps more open and honest as a result. In any case, the panel yielded some great advice, of which some highlights are below.
+
+<center>![Imgur](http://i.imgur.com/oVqZp2b.png)</center>
 
 **Choosing a Lab**
 Prof. Daan van Aalten from the University of Dundee described a three-part Venn diagram for choosing a lab based on considering your passion, your talents, and the available opportunities. That is, he emphasised the importance of picking a lab based on meeting your research interests, but also one that makes use of your skills, and that has the opportunities for you to make the most of your PhD. Dr. Sarah Mizielinska, a postdoc at UCL, also noted that it was important to surround yourself by people that inspire you.
