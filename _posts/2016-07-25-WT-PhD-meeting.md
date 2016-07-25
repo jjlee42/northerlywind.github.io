@@ -21,6 +21,8 @@ Finally, the panel discussed how to deal with challenges in your PhD, especially
 
 **Networking**
 
-As always, the meeting was peppered with networking sessions, both ‘guided’ and informal coffee/tea/drink breaks. I had the lovely opportunity to meet other neuroscience phd students that I hadn’t met before from the Cardiff, Newcastle, Bristol and Oxford programmes. It was great to hear what everyone else was doing and there were some interests in common that fostered interesting discussions, which I felt really drove home the spirit of the meeting. Afterwards, I went out for dinner with the Oxford Wellcome Trust neuroscience PhD students.
+As always, the meeting was peppered with networking sessions, both ‘guided’ and informal coffee/tea/drink breaks. I had the lovely opportunity to meet other neuroscience phd students that I hadn’t met before from the Cardiff, Newcastle, Bristol and Oxford programmes. It was great to hear what everyone else was doing and there were some interests in common that fostered interesting discussions, which I felt really drove home the spirit of the meeting. Afterwards, I went out for dinner with the Oxford Wellcome Trust neuroscience PhD students. 
+
+In all, it was great fun to learn from successful scientists, from postdocs to PIs, and I feel like they did a good job of highlighting not only the joys of science but also talked frankly about the struggles. It was also great to meet the excited, driven fellow Wellcome Trust PhD students from across the UK - I also learned about a few programmes that I didn't know existed until the day! The meeting was definitely helpful and inspiring; I'm glad the Wellcome Trust put it on for us. 
 
 *Image: Three-part recipe for choosing a lab, words from Prof. Daan van Aalten, diagram by me.*
