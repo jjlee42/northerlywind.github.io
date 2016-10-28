@@ -20,4 +20,4 @@ Over the period of applying to PhDs and being in a PhD, I've read quite a few ar
 
 * ["The importance of stupidity in scientific research"](http://jcs.biologists.org/content/121/11/1771.full)
 
-Note: advice are not 'one size fits all'. don't take anyone's advice too seriously. successful people will tell you what they did, but correlation is not causation. 
+Note: possibly the best piece of advice I've come across is that you shouldn't pay attention to other people's advice. Advice is not 'one size fits all'. People may attribute their successes to unrelated factors; correlation is not causation, etc.  
