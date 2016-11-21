@@ -24,15 +24,15 @@ I was repeatedly told this by SfN veterans and I’m glad I listened. The few ta
 
 * **Keep your eyes open.** Due to the aforementioned advice, I ended up getting more free time than anticipated, and was able to randomly wander around quite a few times. The most interesting things I saw at the conference were often not planned. A few times I ended up double-taking because the poster I just walked past was being presented by authors of papers I’ve used as inspiration for my work or read because they were doing very similar things. Additionally I ended up walking past some very interesting work that may not be relevant but were still cool to learn about.
 
-* **Budget for only a few posters per session**. For me, 3-5 posters per session was the sweet spot for really getting the time to engage with posters (15-30 minutes each). However ... 
+* **Budget for only a few posters per session.** For me, 3-5 posters per session was the sweet spot for really getting the time to engage with posters (15-30 minutes each). However ... 
 
-* **Keep a back-up list**. In case the posters are busy or withdrawn, or maybe turn out to be less interesting than you anticipated, save a list of 5-10 others of secondary interests or friends if you get the time (which I did, frequently).
+* **Keep a back-up list.** In case the posters are busy or withdrawn, or maybe turn out to be less interesting than you anticipated, save a list of 5-10 others of secondary interests or friends if you get the time (which I did, frequently).
 
-* **Priority label**. With the above said, it’s super useful (if you’re over-organised like me) to label your posters by priority (you can export your itinerary to google calendar!). This gave me a quick way to see how many posters were essential per session and ration my time accordingly. It also let me (once) see which morning was worth missing by sleeping in after a late night..
+* **Priority label your itinerary.** With the above said, it’s super useful (if you’re over-organised like me) to label your posters by priority (you can export your itinerary to google calendar!). Sounds like overkill but this gave me a quick way to see how many posters were essential per session and ration my time accordingly. Perhaps most importantly, it also let me (once) see which morning was worth missing by sleeping in after a late night..
 
 #### Things to pack you might not have packed
-* **Notebook and pen**. Really, there were a lot of things I wrote down that I completely forgot I had looked at.
+* **Notebook and pen** Really, there were a lot of things I wrote down that I completely forgot I had looked at.
 
-* **Phone charger**. Due to frequent use of Twitter (and Uber/Lyft) I quickly ran out of battery many times. Bring one with several charges.
+* **Phone charger.** Due to frequent use of Twitter (and Uber/Lyft) I quickly ran out of battery many times. Bring one with several charges.
 
 * **Coffee thermos.** I eventually abandoned this due to weight but in the initial few jet lagged days, it was a lifesaver to have a thermos full of filter coffee I topped up in the morning.
