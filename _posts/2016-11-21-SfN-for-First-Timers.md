@@ -3,7 +3,7 @@ layout: post
 title: SfN (or any major conference) for first-timers
 ---
 
-Given that I binge-read blogs about SfN before going to my first one, I thought I’d give back and write a bit about my experience. This SfN 2016 was set in San Diego, California. As years before, there were over 30,000 attendees. So, it was pretty intense. Prior to going I had discussions with SfN veterans (i.e. postdocs) at my university, so I thought I was prepared, but really it is pretty intense. So for first timers, here is my advice. It’s pretty general to any major conference.
+Given that I binge-read blogs about SfN before going to my first one (I don't know why. I just did), I thought I’d give back and write a bit about my experience. This SfN 2016 was set in San Diego, California. As years before, there were over 30,000 attendees. So, it was pretty intense. Prior to going I had discussions with SfN veterans (i.e. postdocs) at my university, so I thought I was prepared, but really it is pretty intense. So for first timers, here is my advice. It’s pretty general to any major conference.
 
 #### Self Care
 * **Arrive early.** I flew in the afternoon before, but I think an extra day would have helped with jet lag. In the absence of this, I just slept fairly early (9-10pm) the first few days and consumed a lot of coffee. But a day to settle in would have meant I might have had more stamina to begin with.
@@ -31,7 +31,7 @@ I was repeatedly told this by SfN veterans and I’m glad I listened. The few ta
 * **Priority label your itinerary.** With the above said, it’s super useful (if you’re over-organised like me) to label your posters by priority (you can export your itinerary to google calendar!). Sounds like overkill but this gave me a quick way to see how many posters were essential per session and ration my time accordingly. Perhaps most importantly, it also let me (once) see which morning I could give a miss after a late night..
 
 #### Things to pack you might not have packed
-* **Notebook and pen.** There aren't many free notebooks so bring one. Really, there were a lot of things I wrote down that I completely forgot I had looked at.
+* **Notebook and pen.** Really, there were a lot of things I wrote down that I completely forgot I had looked at.
 
 * **Phone charger.** Due to frequent use of Twitter (and Uber/Lyft) I quickly ran out of battery many times. Bring one with several charges.
 
