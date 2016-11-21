@@ -31,7 +31,7 @@ I was repeatedly told this by SfN veterans and I’m glad I listened. The few ta
 * **Priority label your itinerary.** With the above said, it’s super useful (if you’re over-organised like me) to label your posters by priority (you can export your itinerary to google calendar!). Sounds like overkill but this gave me a quick way to see how many posters were essential per session and ration my time accordingly. Perhaps most importantly, it also let me (once) see which morning I could give a miss after a late night..
 
 #### Things to pack you might not have packed
-* **Notebook and pen** Really, there were a lot of things I wrote down that I completely forgot I had looked at.
+* **Notebook and pen.** There aren't many free notebooks so bring one. Really, there were a lot of things I wrote down that I completely forgot I had looked at.
 
 * **Phone charger.** Due to frequent use of Twitter (and Uber/Lyft) I quickly ran out of battery many times. Bring one with several charges.
 
