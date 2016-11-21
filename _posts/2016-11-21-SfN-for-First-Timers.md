@@ -13,9 +13,9 @@ Given that I binge-read blogs about SfN before going to my first one, I thought 
 * **Live close-ish.** Again, I didn’t get this chance but it probably would have helped, for cab fares if not  having an occasional nap (I often got a non-essential hour free at the end of poster sessions).
 
 #### Having fun
-* **Go to socials** (but take it easy). I had the most fun at SfN Banter but there are socials for different themes (topics, career levels, nationality, etc.). I didn’t find the “SfN Sponsored Socials” the most inspiring so keep an eye out for other ones via Twitter.
+* **Go to socials** (but take it easy). I had the most fun at SfN Banter but there are socials for different themes (topics, career levels, nationality, etc.). On average I went to two per night. FWIW I didn’t find the "SfN Sponsored Socials" very interesting so keep an eye out for other ones via Twitter.
 
-* **Stay on Twitter.** This is preaching to the choir but honestly, Twitter was so useful for finding stuff to do and saving me in many ways. I think I would have done 90% less in terms of meeting people and having good food if it hadn’t been for Twitter.
+* **Use (or get) Twitter.** This is preaching to the choir but honestly, Twitter was so useful for finding stuff to do and saving me in many ways. I think I would have done 90% less in terms of meeting people and having good food if it hadn’t been for Twitter.
 
 * **Explore elsewhere!** I only stayed a couple days past the conference but I really enjoyed the opportunity to see other places and generally unwind from the conference. Although I was fine during the conference, it was only when I got to relax (by seeing seals in La Jolla!) that I realised it had been an emotionally intense experience.
 
@@ -33,6 +33,6 @@ I was repeatedly told this by SfN veterans and I’m glad I listened. The few ta
 #### Things to pack you might not have packed
 * **Notebook and pen**. Really, there were a lot of things I wrote down that I completely forgot I had looked at.
 
-* Phone charger. Due to frequent use of Twitter (and Uber/Lyft) I quickly ran out of battery many times. Bring one with several charges.
+* **Phone charger**. Due to frequent use of Twitter (and Uber/Lyft) I quickly ran out of battery many times. Bring one with several charges.
 
-* Coffee thermos. I eventually abandoned this due to weight but in the initial few jet lagged days, it was a lifesaver to have a thermos full of filter coffee I topped up in the morning.
+* **Coffee thermos.** I eventually abandoned this due to weight but in the initial few jet lagged days, it was a lifesaver to have a thermos full of filter coffee I topped up in the morning.
