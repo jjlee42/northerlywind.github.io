@@ -28,7 +28,7 @@ I was repeatedly told this by SfN veterans and I’m glad I listened. The few ta
 
 * **Keep a back-up list.** In case the posters are busy or withdrawn, or maybe turn out to be less interesting than you anticipated, save a list of 5-10 others of secondary interests or friends if you get the time (which I did, frequently).
 
-* **Priority label your itinerary.** With the above said, it’s super useful (if you’re over-organised like me) to label your posters by priority (you can export your itinerary to google calendar!). Sounds like overkill but this gave me a quick way to see how many posters were essential per session and ration my time accordingly. Perhaps most importantly, it also let me (once) see which morning was worth missing by sleeping in after a late night..
+* **Priority label your itinerary.** With the above said, it’s super useful (if you’re over-organised like me) to label your posters by priority (you can export your itinerary to google calendar!). Sounds like overkill but this gave me a quick way to see how many posters were essential per session and ration my time accordingly. Perhaps most importantly, it also let me (once) see which morning I could give a miss after a late night..
 
 #### Things to pack you might not have packed
 * **Notebook and pen** Really, there were a lot of things I wrote down that I completely forgot I had looked at.
