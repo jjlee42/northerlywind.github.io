@@ -17,7 +17,7 @@ Given that I binge-read blogs about SfN before going to my first one (I don't kn
 
 * **Use (or get) Twitter.** This is preaching to the choir but honestly, Twitter was so useful for finding stuff to do and saving me in many ways. I think I would have done 90% less in terms of meeting people and having good food if it hadn’t been for Twitter.
 
-* **Explore elsewhere!** I only stayed a couple days past the conference but I really enjoyed the opportunity to see other places and generally unwind from the conference. Although I was fine during the conference, it was only when I got to relax (by seeing seals in La Jolla!) that I realised it had been an emotionally intense experience.
+* **Explore elsewhere!** I only stayed a couple days past the conference but I really enjoyed the opportunity to see other places and generally unwind from the conference. Although I was fine during the conference, it was only when I got to relax (by seeing sea lions in La Jolla!) that I realised it had been an emotionally intense experience.
 
 #### Posters > Talks
 I was repeatedly told this by SfN veterans and I’m glad I listened. The few talks I went to (that were directly incredibly relevant) were fairly useful but I definitely got more out of interacting with poster presenters. Also, for presenting, I would almost unreservedly give a poster for the longer interaction it offers with attendees (five minute Q&A vs. Four. Whole. Hours.).
